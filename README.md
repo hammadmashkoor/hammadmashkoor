@@ -16,7 +16,7 @@ I'm a software developer from Kanpur. An OpenSource enthusiast Inspired by codes
 
 HL Agro is an Indian food ingredient company that specializes in producing, marketing & globally supplying plant based raw materials for the food & beverage.
 
-📺&nbsp;&nbsp;**[Ocean International](https://oceanintl.in/)**
+💼&nbsp;&nbsp;**[Ocean International](https://oceanintl.in/)**
 
 Ocean International is a manufacturing company of Equestrian Products.
 
